@@ -8,4 +8,4 @@
 
 ![image](https://user-images.githubusercontent.com/98630446/156276933-db88c373-366a-46fb-9900-12f304f5503b.png)
 
-### [All my badges](https://www.credly.com/earner/earned)
+### [All my badges](https://www.credly.com/users/vladlen-kulikov/badges)
